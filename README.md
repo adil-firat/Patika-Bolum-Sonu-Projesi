@@ -1,0 +1,1 @@
+# Adil-F-rat-T-y-Patika-B-l-m-Sonu-Projesi
